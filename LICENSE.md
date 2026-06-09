@@ -1,4 +1,4 @@
-
+updated adopt me Script is the best adopt me Script, featuring speed and invisibility. Safe and powerful for all your needs.
 
 
 
